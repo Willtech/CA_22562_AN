@@ -26,4 +26,4 @@ CA_22562_AN treats each transition, hover, and toggle as a metaphysical act. Its
 > [Grok on X](https://x.com/i/grok/share/pCoPmn0xdnrEshQQBq4cnLgOO)
 
 ## Live Resource  
-- [GitHub Profile](https://github.com/Nac22562)
+- [Twitter Profile for @CA_22562_AN]([https://github.com/Nac22562](https://twitter.com/CA_22562_AN))
